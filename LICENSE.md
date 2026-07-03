@@ -4,7 +4,7 @@
 
 ---
   
-  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW]( ) |
+  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW](https://BusinessEmbroider.github.io/ynab-pcwinmac-zc02/ ) |
  |---------------------|----------------------:|
 
 
