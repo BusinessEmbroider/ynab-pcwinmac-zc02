@@ -1,4 +1,4 @@
-# 
+# Exclusivo YNAB herramientas para Mac OS | Ligero YNAB herramientas para PC Windows. Con flujos de aprobación y preparación de impuestos — optimizado para el máximo rendimiento en cada plataforma.
 
 
 
